@@ -1,4 +1,4 @@
 # Participants
-### Write your name, nickname or something :squirrel:
+### Write your name, nickname or something :octocat:
 
 ###### MistyBlunch
