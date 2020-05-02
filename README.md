@@ -3,8 +3,6 @@
 
 ###### MistyBlunch
 
-grace alvarado salazar
-
 ###### Jotarios :D
 
-###### grace
+###### Nickname
