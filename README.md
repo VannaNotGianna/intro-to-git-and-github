@@ -5,4 +5,4 @@
 
 ###### Jotarios :D
 
-###### Nickname
+###### Nickname or Name
