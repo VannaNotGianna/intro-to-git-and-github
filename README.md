@@ -5,7 +5,7 @@
 
 ###### Jotarios :D
 
-###### Another nickname
+###### Another nickna
 
 ###### Nickname or Name
 
